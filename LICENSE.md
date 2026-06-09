@@ -1,4 +1,4 @@
-# 
+# Personalizado Krita efeitos para Mac OS | Atualizado Krita efeitos para PC Windows. Com ferramentas de armadura e carimbo de clone — otimizado para máximo desempenho em cada plataforma.
 
 
 
